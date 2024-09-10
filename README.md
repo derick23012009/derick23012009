@@ -1,16 +1,13 @@
-## Hi there 👋
+## Salve piazada 🤙
 
-<!--
-**derick23012009/derick23012009** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_prazer_ _d3rick_
 
-Here are some ideas to get you started:
+*Atleta Federado 
+* 🏐🥇
+* 🐺
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  *só chamar*
+
+  41 9 99944*** :trollface: :trollface:
+
+  
